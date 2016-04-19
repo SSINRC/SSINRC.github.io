@@ -1,2 +1,2 @@
 # SSINRC.github.io
-臨時社網
+temporary club website of ssinrc 26th
